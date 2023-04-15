@@ -1,2 +1,2 @@
 # Info-Seputar-Kudus-
-Download Aplikasi ISK.com
+Download Aplikasi ISK.COM
